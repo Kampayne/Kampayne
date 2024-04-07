@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kampayne
+- 👋 Hi, I’m Kamryn Payne
 - 👀 I’m interested in learning and improving.
 - 🌱 I’m currently learning the basics.
 - 💞️ I’m looking to collaborate on ...
